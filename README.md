@@ -1,0 +1,2 @@
+# ultrashgossip.github.io
+ULTRASH GOSSIP | HOME OF THE TRASHIEST SMACK TALK IN TOWN
